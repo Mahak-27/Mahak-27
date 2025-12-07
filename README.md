@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on personal projects<br>💬 Ask me about anything<br>📫 How to reach me? Email me at mahakgupta2705@gmail.com<br>⚡ Fun fact: I debug better with coffee in hand and music in ears.
+🔭 I’m currently working on personal projects<br>📫 How to reach me? Email me at mahakgupta2705@gmail.com<br>
 
 
 ## 🌐 Socials:
